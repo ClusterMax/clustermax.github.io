@@ -1,3 +1,0 @@
-# clustermax.github.io
-
-# **MAYO**
